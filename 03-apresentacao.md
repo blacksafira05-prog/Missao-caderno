@@ -1,0 +1,1 @@
+O que sabe sobre computador e o que aprendeu com esta UC: Não sei muito sobre computadores, estou obtendo conhecimento agora e espero aprender muito mais juntamente com a faculdade, e estou aprendendo com esta UC a melhorar meu conhecimento em programação e sobre computadores.
